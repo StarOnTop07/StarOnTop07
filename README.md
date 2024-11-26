@@ -1,6 +1,6 @@
 # StarOnTop07
 
-I'm a ⭐ Shining star
+I'm a ⭐ Shining star !
 
-Have a nice day ;)
+Have a nice day ;) 
 
